@@ -13,4 +13,4 @@ ____    ______  ______   ____    ____     ____    ______  ____    ______
 - i love the game minecraft and create video games 🎮
 - i'm learning for create a java application 📲
 
-so follow my github and enjoy 🎈
+so follow to my github and enjoy 🎈
